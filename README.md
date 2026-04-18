@@ -1,0 +1,1 @@
+# QuizeIQ-Privacy-Policy
